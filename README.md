@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Elliot Jennis
-- This repository showcases some of the work I have done during my master's degree
+- This profile showcases some of the work I have done during my master's degree
 - I'm currently looking for a position in aerospace post graduation (2022)
 - 📫 How to reach me ejennis20@gmail.com & linkedin.com/in/elliot-jennis-92a892153
 
